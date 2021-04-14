@@ -1,1 +1,0 @@
-# AdrianQuGA.github.io
